@@ -30,7 +30,7 @@ I am passionate about transforming raw data into meaningful insights, learning e
 
 🔗 Let's Connect with me
 - LinkedIn:www.linkedin.com/in/supraja-srinivasula-235369323
-- E-Mail:suprajasrinivasula24@gmail.com
+- E-Mail:suprajacharya888gmail.com
 
 
 
