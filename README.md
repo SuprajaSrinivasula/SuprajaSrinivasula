@@ -28,7 +28,7 @@ I am passionate about transforming raw data into meaningful insights, learning e
 ![Excel](https://img.shields.io/badge/Excel-217346?style=for-the-badge&logo=microsoftexcel&logoColor=white)
 
 
-🔗 Let'sConnect with me
+🔗 Let's Connect with me
 - LinkedIn:www.linkedin.com/in/supraja-srinivasula-235369323
 - E-Mail:suprajasrinivasula24@gmail.com
 
